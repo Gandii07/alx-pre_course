@@ -1,1 +1,1 @@
-my first readme
+Gandii a talented software enigneer
