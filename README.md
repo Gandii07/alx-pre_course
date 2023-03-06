@@ -1,1 +1,0 @@
-Gandii the hottest programmer
